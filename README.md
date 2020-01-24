@@ -1,0 +1,2 @@
+# my-document
+Although we spoke two few days ago about the possibility of working together on a video editing, I recognize that video editing  has only recently been in session. I hope we both still share the same enthusiasm for the project. I'll be very happy to assist you in any way I can to make it a success, because I know how important it is for the video editing.  If you still want to pursue this idea, I suggest that you encourage to schedule the video now, since this is the best time to use the video. Please give me a chat, if you would like me to help.
